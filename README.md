@@ -1,5 +1,5 @@
 Dulu, ketika dunia masih berjalan pelan, pekerjaan tetap adalah simbol stabilitas.  
-Ia menjadi oase bagi keluarga — tempat kita menggantungkan harapan,  
+Ia menjadi oase bagi keluarga tempat kita menggantungkan harapan,  
 membangun mimpi, dan menata masa depan.  
 
 Tapi hari ini, kita hidup di zaman turbulensi.  
