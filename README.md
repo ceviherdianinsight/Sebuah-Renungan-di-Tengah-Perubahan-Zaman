@@ -41,7 +41,7 @@ dengan visi, keberanian, dan kerja keras.
 <br>
 
 
-> **Untukmu yang mencintai perjuangan, 5 Juli 2025**
+> **Untukmu yang mencintai perjuangan, 2 Juli 2025**
 > 
 > **by: [ceviherdianinsight.github.io](https://ceviherdianinsight.github.io)**
 
